@@ -1,1 +1,1 @@
-# Christ-is-the-way-international-church.com.com
+# Christ-is-the-way-international-church.com
